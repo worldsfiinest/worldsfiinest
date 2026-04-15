@@ -54,5 +54,3 @@
 <p align="center">
   <img src="https://i.postimg.cc/XYLv8wfS/Untitled15-20240903153632.png" width="1200">
 </p>
-
-# <p align="center"> dni + extra info soon </p>
