@@ -81,7 +81,7 @@ YIKES I NEED TO WASH IT DONT I? ㅤㅤALAS MY DESIGNATION IS ROOK OR SILOㅤㅤM
 <a href="https://github.com/pizzagamebeta">
   <img align="left" width="200" src="https://i.ibb.co/LdRhmCpw/Untitled150.png">
 </a>
-A LIVIN' VAMPIRE! AND A BUNNY! ㅤㅤSHES ONE HELL OF A GAL
+A LIVIN' VAMPIRE! AND A BUNNY! ㅤㅤSHES ONE HELL OF A GALㅤㅤ
 <br clear="left" />
  ㅤㅤ ㅤㅤ
   ㅤㅤ ㅤㅤ
@@ -115,11 +115,12 @@ A SINNER? ㅤㅤWELL EVERYONE ISNT A SAINT ARENT THEY? ㅤㅤ ㅤㅤ
   <img src="https://i.ibb.co/Qj8rBdc8/Untitled160-20260419211050.png" height="" width="500">
 </p> 
 
-<p align="center"> MOONY ㅤㅤADAM ㅤㅤRAYY ㅤㅤONI ㅤㅤKOUI ㅤㅤSAGE ㅤㅤXAVIER ㅤㅤYUNA ㅤㅤLOO </p>
+<p align="center"> MOONY ㅤㅤADAM ㅤㅤRAYY ㅤㅤONI ㅤㅤKOUI ㅤㅤSAGE ㅤㅤYUNA ㅤㅤLOO ㅤㅤKITTY </p>
 <div align="center">
 
-[SIMON](https://github.com/zxuholic) ㅤㅤ[GABRIEL](https://github.com/healthpen) ㅤㅤ[JAMIE](https://github.com/bittersweetcookie) ㅤㅤ[JOHN](https://github.com/KickAKid) ㅤㅤ[EMRE](https://github.com/gestapoed)
+[SIMON](https://github.com/zxuholic) ㅤㅤ[GABRIEL](https://github.com/healthpen) ㅤㅤ[JAMIE](https://github.com/bittersweetcookie) ㅤㅤ[JOHN](https://github.com/KickAKid) ㅤㅤ[EMRE](https://github.com/gestapoed) ㅤㅤ[XAVIER](https://github.com/FLOWERPLASMA)
 
+MY MOOT'S COOL ASS [LAB RP](https://github.com/BUGLABORATORIES)
 </div>
 
 > [!CAUTION]
