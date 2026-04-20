@@ -97,7 +97,7 @@ A LIVIN' VAMPIRE! AND A BUNNY! ㅤㅤSHES ONE HELL OF A GALㅤㅤ
 <a href="https://github.com/embracethegrace">
   <img align="left" width="250" src="https://i.ibb.co/Dg78YtxJ/Untitled151-20260416173330.png">
 </a>
-A SINNER? ㅤㅤㅤㅤWELL NO ONES FULLY A SAINT ARENT THEY? ㅤㅤ ㅤㅤ
+A SINNER? ㅤㅤNO ONES A SAINT RIGHT?ㅤㅤ ㅤ
 <br clear="left" />  ㅤㅤ
 
 <p align="right"> <img src="https://files.catbox.moe/1fb8kh.gif" width="30"> ㅤㅤ<img src="https://i.postimg.cc/cC6fpJY3/red.gif" width="150"> ㅤㅤ<img src="https://i.postimg.cc/mP04XhZh/tumblr-8d1eb4ed056588a2bcc70e0528797bfd-dc8e2bd8-1280.gif" width="30"> </p>
