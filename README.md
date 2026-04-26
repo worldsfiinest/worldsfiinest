@@ -111,7 +111,7 @@ A SINNER? ㅤㅤNO ONES A SAINT RIGHT?ㅤㅤ ㅤ
  <a href="https://github.com/1969bootboy">
   <img align="right" width="240" src="https://i.ibb.co/q3PnzSyR/Untitled152-20260416173355.png">
 </a>
-  <p aligh="right"> WE MUTUALLY HATE EACH OTHER ㅤㅤWHY? ㅤㅤSHITS AND GIGGLES! </p>
+  <p aligh="right"> WE MUTUALLY HATE EACH OTHER ㅤㅤWHY DO I? ㅤㅤHIS SHIT SMELLSSSS </p>
 <br clear="right" />
 
 <p align="center">
