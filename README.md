@@ -88,7 +88,7 @@ YIKES I NEED TO WASH IT DONT I? ㅤㅤALAS MY DESIGNATION IS ROOK OR SILOㅤㅤM
 <a href="https://github.com/pizzagamebeta">
   <img align="left" width="200" src="https://i.ibb.co/LdRhmCpw/Untitled150.png">
 </a>
-A LIVIN' VAMPIRE! AND A BUNNY! ㅤㅤSHES ONE HELL OF A GALㅤㅤ
+A LIVIN' VAMPIRE! AND A BUNNY! ㅤㅤSHE LIKES LIO MORE THAN YOU MALA SUCK IT UPㅤㅤ
 <br clear="left" />
  ㅤㅤ ㅤㅤ
   ㅤㅤ ㅤㅤ
