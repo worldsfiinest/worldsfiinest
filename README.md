@@ -39,8 +39,7 @@
 
 <p align="center">
   <img src="https://i.ibb.co/wZs5FJdx/Untitled165-20260423125717.png" width="30" />
-  <img
-src="https://i.ibb.co/MxQxPmcg/flags2-20260504201407.png" width="30" />
+  <img src="https://i.ibb.co/MxQxPmcg/flags2-20260504201407.png" width="28.8" />
   <img src="https://i.ibb.co/Q3bWV3mL/Untitled165-20260423125712.png" width="30" />
   <img src="https://i.ibb.co/Q7qQ6VsT/Untitled165-20260423125836.png" width="30" />
   <img
