@@ -90,12 +90,12 @@ YIKES I NEED TO WASH IT DONT I? ㅤㅤALAS MY DESIGNATION IS ROOK OR SILOㅤㅤM
 <a href="https://github.com/pizzagamebeta">
   <img align="left" width="200" src="https://i.ibb.co/LdRhmCpw/Untitled150.png">
 </a>
-A LIVIN' VAMPIRE! AND A BUNNY! ㅤㅤSHE LIKES LIO MORE THAN YOU MALA SUCK IT UPㅤㅤ
+A LIVIN' VAMPIRE! AND A BUNNY! ㅤㅤSHE LIKESS CEREAL ALOT YK?ㅤㅤ
 <br clear="left" />
  ㅤㅤ ㅤㅤ
   ㅤㅤ ㅤㅤ
 <p align="right"> <img src="https://i.postimg.cc/1XP9wMFS/F4-D96001-21-D8-47-F7-90-AC-429-CBA68-A5-A4.gif" width="30"> ㅤㅤ<img src="https://i.postimg.cc/X7Gwxp4z/red.gif" width="100"> ㅤㅤ<img src="https://64.media.tumblr.com/e766542b34586c4cfae4e5d4538fb903/0cb1053f7d3f6121-04/s75x75_c1/e50c9e3c2c5fa82c25f25c6c9ad73b4f678112ae.gifv" width="30"> </p>
- <a href="https://github.com/pidawn">
+ <a href="https://github.com/t0xcitepirxte">
   <img align="right" width="240" src="https://i.ibb.co/whzB0Mqs/Untitled154-20260416173441.png">
 </a>
   <p aligh="right"> A MAN ONCE SAID ABOUT THIS GUY... ㅤㅤGOT TO BE THE BEST PIRATE IVE EVER SEEN </p>
@@ -113,7 +113,7 @@ A SINNER? ㅤㅤNO ONES A SAINT RIGHT?ㅤㅤ ㅤ
  <a href="https://github.com/1969bootboy">
   <img align="right" width="240" src="https://i.ibb.co/q3PnzSyR/Untitled152-20260416173355.png">
 </a>
-  <p aligh="right"> WE MUTUALLY HATE EACH OTHER ㅤㅤWHY DO I? ㅤㅤHIS SHIT SMELLSSSS </p>
+  <p aligh="right"> WE MUTUALLY HATE EACH OTHER ㅤㅤHIS SHIT SMELLSS </p>
 <br clear="right" />
 
 <p align="center">
@@ -124,10 +124,10 @@ A SINNER? ㅤㅤNO ONES A SAINT RIGHT?ㅤㅤ ㅤ
   <img src="https://i.ibb.co/Qj8rBdc8/Untitled160-20260419211050.png" height="" width="500">
 </p> 
 
-<p align="center"> MOONY ㅤㅤADAM ㅤㅤRAYY ㅤㅤONI ㅤㅤKOUI ㅤㅤSAGE ㅤㅤYUNA ㅤㅤLOO ㅤㅤKITTY </p>
+<p align="center"> MOONY ㅤㅤADAM ㅤㅤRAYY ㅤㅤONI ㅤㅤKOUI ㅤㅤSAGE ㅤㅤYUNA ㅤㅤLOO ㅤㅤKITTY ㅤㅤZEN </p>
 <div align="center">
 
-[SIMON](https://github.com/zxuholic) ㅤㅤ[GABRIEL](https://github.com/THE-ARCHPRIEST) ㅤㅤ[JAMIE](https://github.com/bittersweetcookie) ㅤㅤ[JOHN](https://github.com/KickAKid) ㅤㅤ[EMRE](https://github.com/gestapoed) ㅤㅤ[XAVIER](https://github.com/FLOWERPLASMA)
+[SIMON](https://github.com/zxuholic) ㅤㅤ[GABRIEL](https://github.com/THE-ARCHPRIEST) ㅤㅤ[JAMIE](https://github.com/bittersweetcookie) ㅤㅤ[JOHN](https://github.com/KickAKid) ㅤㅤ[EMRE](https://github.com/gestapoed) ㅤㅤ[XAVIER](https://github.com/FLOWERPLASMA) ㅤㅤ[FAE](https://github.com/TheForestFae)
 
 MY MOOT'S COOL ASS [LAB RP](https://github.com/BUGLABORATORIES)
 </div>
