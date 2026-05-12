@@ -13,7 +13,7 @@
 
 <p align="center">
   <img src="https://files.catbox.moe/cs0q1r.gif" width="110" />
-  <img src="https://files.catbox.moe/tbu0il.gif" width="200" />
+  <img src="https://file.garden/ZhOd77cFMh_Z3LOb/neocities/sprout/Resources/deco%20imvu%20badge%20buttons/BloodthirstyVIP.gif?v=1716182706662" width="200" />
   <img src="https://i.postimg.cc/xTqHsqyM/gray.gif" width="100" />
   <img src="https://files.catbox.moe/5eqdjt.gif" width="103" />
 </p>
@@ -56,7 +56,7 @@ YIKES I NEED TO WASH IT DONT I? ㅤㅤALAS MY DESIGNATION IS ROOK OR SILOㅤㅤM
   <img src="https://i.postimg.cc/1tWygmdX/gray.gif" width= "110">
   <img src="https://i.postimg.cc/hjnX8tMs/gray.gif" width= "120">
   <img src="https://i.postimg.cc/Fzs1qCMw/black.gif" width="130">
-  <img src="https://files.catbox.moe/hm6tnl.gif" width="120">
+  <img src="https://file.garden/ZhOd77cFMh_Z3LOb/neocities/sprout/Resources/deco%20imvu%20badge%20buttons/CuddlyVIP.gif?v=1716183164969" width="122">
 </p>
 
 ![gundiv](https://i.ibb.co/ycDXh535/Untitled147-20260417222317.png)
@@ -109,7 +109,7 @@ A LIVIN' VAMPIRE! AND A BUNNY! ㅤㅤSHE LIKESS CEREAL ALOT YK?ㅤㅤ
 A SINNER? ㅤㅤNO ONES A SAINT RIGHT?ㅤㅤ ㅤ
 <br clear="left" />  ㅤㅤ
 
-<p align="right"> <img src="https://files.catbox.moe/1fb8kh.gif" width="30"> ㅤㅤ<img src="https://i.postimg.cc/cC6fpJY3/red.gif" width="150"> ㅤㅤ<img src="https://i.postimg.cc/mP04XhZh/tumblr-8d1eb4ed056588a2bcc70e0528797bfd-dc8e2bd8-1280.gif" width="30"> </p>
+<p align="right"> <img src="https://files.catbox.moe/1fb8kh.gif" width="30"> ㅤㅤ<img src="https://file.garden/ZhOd77cFMh_Z3LOb/neocities/sprout/Resources/deco%20imvu%20badge%20buttons/stickers-0f93e6497449b1c8e5eb276490ec1439.gif?v=1717145703113" width="150"> ㅤㅤ<img src="https://i.postimg.cc/mP04XhZh/tumblr-8d1eb4ed056588a2bcc70e0528797bfd-dc8e2bd8-1280.gif" width="30"> </p>
  <a href="https://github.com/1969bootboy">
   <img align="right" width="240" src="https://i.ibb.co/q3PnzSyR/Untitled152-20260416173355.png">
 </a>
