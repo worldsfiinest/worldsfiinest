@@ -34,7 +34,7 @@
 </p>
 
 <p align="center">
-  <img src="https://files.catbox.moe/4t50kv.gif" width="50" /> ㅤㅤ<img src="https://i.postimg.cc/WFchz2kd/mo142.png" width="50" /> ㅤㅤ <img src="https://i.postimg.cc/VSyVJMZz/red103.gif" width="50" /> ㅤㅤ<img src="https://i.postimg.cc/3Rj8CzwG/yjl68s.gif" width="50" />
+  <img src="https://64.media.tumblr.com/7ea6550dfcc2bcbf2472484ee0f86d22/e7d74065fc3a0376-bf/s75x75_c1/215e40f67ac2e4304e5737b4dcfab3a511dd9112.gif" width="50" /> ㅤㅤ<img src="https://i.postimg.cc/WFchz2kd/mo142.png" width="50" /> ㅤㅤ <img src="https://i.postimg.cc/VSyVJMZz/red103.gif" width="50" /> ㅤㅤ<img src="https://i.postimg.cc/3Rj8CzwG/yjl68s.gif" width="50" />
 </p>
 
 <p align="center">
@@ -109,7 +109,7 @@ A LIVIN' VAMPIRE! AND A BUNNY! ㅤㅤSHE LIKESS CEREAL ALOT YK?ㅤㅤ
 A SINNER? ㅤㅤNO ONES A SAINT RIGHT?ㅤㅤ ㅤ
 <br clear="left" />  ㅤㅤ
 
-<p align="right"> <img src="https://files.catbox.moe/1fb8kh.gif" width="30"> ㅤㅤ<img src="https://file.garden/ZhOd77cFMh_Z3LOb/neocities/sprout/Resources/deco%20imvu%20badge%20buttons/stickers-0f93e6497449b1c8e5eb276490ec1439.gif?v=1717145703113" width="150"> ㅤㅤ<img src="https://i.postimg.cc/mP04XhZh/tumblr-8d1eb4ed056588a2bcc70e0528797bfd-dc8e2bd8-1280.gif" width="30"> </p>
+<p align="right"> <img src="https://i.postimg.cc/Fss86gh9/IMG-2163.gif" width="30"> ㅤㅤ<img src="https://file.garden/ZhOd77cFMh_Z3LOb/neocities/sprout/Resources/deco%20imvu%20badge%20buttons/stickers-0f93e6497449b1c8e5eb276490ec1439.gif?v=1717145703113" width="150"> ㅤㅤ<img src="https://i.postimg.cc/mP04XhZh/tumblr-8d1eb4ed056588a2bcc70e0528797bfd-dc8e2bd8-1280.gif" width="30"> </p>
  <a href="https://github.com/1969bootboy">
   <img align="right" width="240" src="https://i.ibb.co/q3PnzSyR/Untitled152-20260416173355.png">
 </a>
