@@ -95,7 +95,7 @@ A LIVIN' VAMPIRE! AND A BUNNY! ㅤㅤNO THIRST FOR BLOOD THANKFULLYㅤㅤ
  ㅤㅤ ㅤㅤ
   ㅤㅤ ㅤㅤ
 <p align="right"> <img src="https://i.postimg.cc/1XP9wMFS/F4-D96001-21-D8-47-F7-90-AC-429-CBA68-A5-A4.gif" width="30"> ㅤㅤ<img src="https://i.postimg.cc/X7Gwxp4z/red.gif" width="100"> ㅤㅤ<img src="https://64.media.tumblr.com/e766542b34586c4cfae4e5d4538fb903/0cb1053f7d3f6121-04/s75x75_c1/e50c9e3c2c5fa82c25f25c6c9ad73b4f678112ae.gifv" width="30"> </p>
- <a href="https://github.com/t0xcitepirxte">
+ <a href="https://github.com/pirate-freak">
   <img align="right" width="240" src="https://i.ibb.co/whzB0Mqs/Untitled154-20260416173441.png">
 </a>
   <p aligh="right"> A MAN ONCE SAID ABOUT THIS GUY... ㅤㅤGOT TO BE THE BEST PIRATE IVE EVER SEEN </p>
