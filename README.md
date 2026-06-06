@@ -127,7 +127,7 @@ A SINNER? ㅤㅤNO ONES A SAINT RIGHT?ㅤㅤ ㅤ
 <p align="center"> MOONY ㅤㅤADAM ㅤㅤRAYY ㅤㅤONI ㅤㅤKOUI ㅤㅤSAGE ㅤㅤYUNA ㅤㅤLOO ㅤㅤJELLYFISH ㅤㅤZEN </p>
 <div align="center">
 
-[SIMON](https://github.com/zxuholic) ㅤㅤ[GABRIEL](https://github.com/THE-ARCHPRIEST) ㅤㅤ[JAMIE](https://github.com/bittersweetcookie) ㅤㅤ[JOHN](https://github.com/KickAKid) ㅤㅤ[EMRE](https://github.com/gestapoed) ㅤㅤ[XAVIER](https://github.com/FLOWERPLASMA) ㅤㅤ[FAE](https://github.com/TheForestFae)
+[SOLAR](https://github.com/reversecowgirl) ㅤㅤ[SIMON](https://github.com/zxuholic) ㅤㅤ[GABRIEL](https://github.com/THE-ARCHPRIEST) ㅤㅤ[JAMIE](https://github.com/bittersweetcookie) ㅤㅤ[JOHN](https://github.com/KickAKid) ㅤㅤ[EMRE](https://github.com/gestapoed) ㅤㅤ[XAVIER](https://github.com/FLOWERPLASMA) ㅤㅤ[FAE](https://github.com/TheForestFae)
 
 MY MOOT'S COOL ASS [LAB RP](https://github.com/BUGLABORATORIES)
 </div>
