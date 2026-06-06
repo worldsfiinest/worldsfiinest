@@ -90,7 +90,7 @@ YIKES I NEED TO WASH IT DONT I? ㅤㅤALAS MY DESIGNATION IS ROOK OR SILOㅤㅤM
 <a href="https://github.com/pizzagamebeta">
   <img align="left" width="200" src="https://i.ibb.co/LdRhmCpw/Untitled150.png">
 </a>
-A LIVIN' VAMPIRE! AND A BUNNY! ㅤㅤNO THIRST FOR BLOOD THANKFULLYㅤㅤ
+A LIVIN' VAMPIRE! ㅤㅤNO THIRST FOR BLOOD THANKFULLYㅤㅤ
 <br clear="left" />
  ㅤㅤ ㅤㅤ
   ㅤㅤ ㅤㅤ
@@ -98,7 +98,7 @@ A LIVIN' VAMPIRE! AND A BUNNY! ㅤㅤNO THIRST FOR BLOOD THANKFULLYㅤㅤ
  <a href="https://github.com/pirate-freak">
   <img align="right" width="240" src="https://i.ibb.co/whzB0Mqs/Untitled154-20260416173441.png">
 </a>
-  <p aligh="right"> A MAN ONCE SAID ABOUT THIS GUY... ㅤㅤGOT TO BE THE BEST PIRATE IVE EVER SEEN </p>
+  <p aligh="right"> THE BESTEST PIRATE YOUD EVER SEEN </p>
 <br clear="right" />
  ㅤㅤ ㅤㅤ
    ㅤㅤ ㅤㅤ
@@ -108,12 +108,12 @@ A LIVIN' VAMPIRE! AND A BUNNY! ㅤㅤNO THIRST FOR BLOOD THANKFULLYㅤㅤ
 </a>
 A SINNER? ㅤㅤNO ONES A SAINT RIGHT?ㅤㅤ ㅤ
 <br clear="left" />  ㅤㅤ
-
+ㅤㅤㅤㅤㅤ
 <p align="right"> <img src="https://i.postimg.cc/Fss86gh9/IMG-2163.gif" width="30"> ㅤㅤ<img src="https://file.garden/ZhOd77cFMh_Z3LOb/neocities/sprout/Resources/deco%20imvu%20badge%20buttons/stickers-0f93e6497449b1c8e5eb276490ec1439.gif?v=1717145703113" width="150"> ㅤㅤ<img src="https://i.postimg.cc/mP04XhZh/tumblr-8d1eb4ed056588a2bcc70e0528797bfd-dc8e2bd8-1280.gif" width="30"> </p>
  <a href="https://github.com/1969bootboy">
   <img align="right" width="240" src="https://i.ibb.co/q3PnzSyR/Untitled152-20260416173355.png">
 </a>
-  <p aligh="right"> WE MUTUALLY HATE EACH OTHER ㅤㅤHIS SHIT SMELLSS </p>
+  <p aligh="right"> WE MUTUALLY HATE EACH OTHER ㅤㅤ</p>
 <br clear="right" />
 
 <p align="center">
