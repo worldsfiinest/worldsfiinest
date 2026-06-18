@@ -103,7 +103,7 @@ A LIVIN' VAMPIRE! ㅤㅤNO THIRST FOR BLOOD THANKFULLYㅤㅤ
  ㅤㅤ ㅤㅤ
    ㅤㅤ ㅤㅤ
 <p align="left"> <img src="https://i.postimg.cc/HLhc0GWg/mo39.gif" width="30"> ㅤㅤ<img src="https://i.postimg.cc/9QZDS94M/red.gif" width="100"> ㅤㅤ<img src="https://i.postimg.cc/mD1c8dhF/mo38.gif" width="30"> </p>
-<a href="https://github.com/embracethegrace">
+<a href="https://github.com/finalhornet">
   <img align="left" width="250" src="https://i.ibb.co/Dg78YtxJ/Untitled151-20260416173330.png">
 </a>
 A SINNER? ㅤㅤNO ONES A SAINT RIGHT?ㅤㅤ ㅤ
@@ -127,7 +127,7 @@ A SINNER? ㅤㅤNO ONES A SAINT RIGHT?ㅤㅤ ㅤ
 <p align="center"> ZORI ㅤㅤADAM ㅤㅤRAYY ㅤㅤONI ㅤㅤKOUI ㅤㅤSAGE ㅤㅤYUNA ㅤㅤLOO ㅤㅤJELLYFISH ㅤㅤZEN </p>
 <div align="center">
 
-[MOONY](https://github.com/beelzebubsbelovedd) ㅤㅤ[SOLAR](https://github.com/reversecowgirl) ㅤㅤ[SIMON](https://github.com/NULLSCXPE) ㅤㅤ[GABRIEL](https://github.com/THE-ARCHPRIEST) ㅤㅤ[JAMIE](https://github.com/bittersweetcookie) ㅤㅤ[JOHN](https://github.com/KickAKid) ㅤㅤ[EMRE](https://github.com/gestapoed) ㅤㅤ[XAVIER](https://github.com/FLOWERPLASMA) ㅤㅤ[FAE](https://github.com/TheForestFae)
+[MOONY](https://github.com/beelzebubsbelovedd) ㅤㅤ[SOLAR](https://github.com/slackslut) ㅤㅤ[SIMON](https://github.com/NULLSCXPE) ㅤㅤ[GABRIEL](https://github.com/THE-ARCHPRIEST) ㅤㅤ[JAMIE](https://github.com/bittersweetcookie) ㅤㅤ[JOHN](https://github.com/KickAKid) ㅤㅤ[EMRE](https://github.com/gestapoed) ㅤㅤ[XAVIER](https://github.com/FLOWERPLASMA) ㅤㅤ[FAE](https://github.com/TheForestFae)
 
 MY MOOT'S COOL ASS [LAB RP](https://github.com/BUGLABORATORIES)
 </div>
