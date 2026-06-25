@@ -110,7 +110,7 @@ A SINNER? ㅤㅤNO ONES A SAINT RIGHT?ㅤㅤ ㅤ
 <br clear="left" />  ㅤㅤ
 ㅤㅤㅤㅤㅤ
 <p align="right"> <img src="https://i.postimg.cc/Fss86gh9/IMG-2163.gif" width="30"> ㅤㅤ<img src="https://file.garden/ZhOd77cFMh_Z3LOb/neocities/sprout/Resources/deco%20imvu%20badge%20buttons/stickers-0f93e6497449b1c8e5eb276490ec1439.gif?v=1717145703113" width="150"> ㅤㅤ<img src="https://i.postimg.cc/mP04XhZh/tumblr-8d1eb4ed056588a2bcc70e0528797bfd-dc8e2bd8-1280.gif" width="30"> </p>
- <a href="https://github.com/1969bootboy">
+ <a href="https://github.com/wastedsacrifice">
   <img align="right" width="240" src="https://i.ibb.co/q3PnzSyR/Untitled152-20260416173355.png">
 </a>
   <p aligh="right"> WE MUTUALLY HATE EACH OTHER ㅤㅤ</p>
@@ -127,7 +127,7 @@ A SINNER? ㅤㅤNO ONES A SAINT RIGHT?ㅤㅤ ㅤ
 <p align="center"> ZORI ㅤㅤADAM ㅤㅤRAYY ㅤㅤONI ㅤㅤKOUI ㅤㅤSAGE ㅤㅤYUNA ㅤㅤLOO ㅤㅤJELLYFISH ㅤㅤZEN </p>
 <div align="center">
 
-[MOONY](https://github.com/beelzebubsbelovedd) ㅤㅤ[SOLAR](https://github.com/slackslut) ㅤㅤ[SIMON](https://github.com/NULLSCXPE) ㅤㅤ[GABRIEL](https://github.com/THE-ARCHPRIEST) ㅤㅤ[JAMIE](https://github.com/bittersweetcookie) ㅤㅤ[JOHN](https://github.com/KickAKid) ㅤㅤ[EMRE](https://github.com/gestapoed) ㅤㅤ[XAVIER](https://github.com/FLOWERPLASMA) ㅤㅤ[FAE](https://github.com/TheForestFae)
+[MOONY](https://github.com/beelzebubsbelovedd) ㅤㅤ[SOLAR](https://github.com/lobogirl) ㅤㅤ[SIMON](https://github.com/NULLSCXPE) ㅤㅤ[GABRIEL](https://github.com/THE-ARCHPRIEST) ㅤㅤ[JAMIE](https://github.com/bittersweetcookie) ㅤㅤ[JOHN](https://github.com/KickAKid) ㅤㅤ[EMRE](https://github.com/gestapoed) ㅤㅤ[XAVIER](https://github.com/FLOWERPLASMA) ㅤㅤ[FAE](https://github.com/TheForestFae)
 
 MY MOOT'S COOL ASS [LAB RP](https://github.com/BUGLABORATORIES)
 </div>
