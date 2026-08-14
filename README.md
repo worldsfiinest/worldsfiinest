@@ -77,7 +77,7 @@ YIKES I NEED TO WASH IT DONT I? ㅤㅤALAS MY DESIGNATION IS ROOK OR SILOㅤㅤM
 > <p align="center"> don't worry soldier, once you die, </p>
 
 <p align="center"> 
-  <img src="https://i.ibb.co/1f2zrRwQ/Untitled149.png"
+  <img src="https://i.ibb.co/1f2zrRwQ/Untitled149.png" width="500">
 </p>
 
 <p align="center"> THATS ENOUGH ABOUT ME </p>
