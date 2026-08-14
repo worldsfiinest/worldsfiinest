@@ -77,7 +77,7 @@ YIKES I NEED TO WASH IT DONT I? ㅤㅤALAS MY DESIGNATION IS ROOK OR SILOㅤㅤM
 > <p align="center"> don't worry soldier, once you die, </p>
 
 <p align="center"> 
-  <img src="https://i.ibb.co/ycBWbTWY/Untitled149-20260416173813.png"
+  <img src="https://i.ibb.co/1f2zrRwQ/Untitled149.png"
 </p>
 
 <p align="center"> THATS ENOUGH ABOUT ME </p>
@@ -122,7 +122,7 @@ A SINNER? ㅤㅤNO ONES A SAINT RIGHT?ㅤㅤ ㅤ
 </p> 
 
 <p align="center">
-  <img src="https://i.ibb.co/Qj8rBdc8/Untitled160-20260419211050.png" height="" width="500">
+  <img src="https://i.ibb.co/jvkQ07TW/Untitled160-20260814094833.png" height="" width="500">
 </p> 
 
 <p align="center"> ZORI ㅤㅤADAM ㅤㅤRAYY ㅤㅤONI ㅤㅤKOUI ㅤㅤSAGE ㅤㅤYUNA ㅤㅤLOO ㅤㅤJELLYFISH ㅤㅤZEN </p>
